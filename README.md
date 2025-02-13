@@ -13,4 +13,4 @@ Now, I'm transitioning into **Data Analytics**, bringing a unique blend of **ana
 
 🌱 Currently, I'm expanding my knowledge in data analytics and exploring opportunities to apply my skills.
 
-📫 Let's connect! [LinkedIn](https://www.linkedin.com/in/vacgonzalez-troy/) | [Portfolio](https://drive.google.com/drive/folders/1W3nmld_xs10y7GdkselvapcJehV42Mhi?usp=sharing)
+📫 Let's connect! [LinkedIn](https://www.linkedin.com/in/vacgonzalez-troy/) | [Portfolio](https://drive.google.com/file/d/1oxi40merx0O1tFh-PEO6CohGROq9hGsK/view?usp=sharing)
