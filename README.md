@@ -1,6 +1,6 @@
 👋 Hi, I'm Troy
 
-I have a background in Applied Physics and 12+ years of experience across supply chain management, lighting consultancy, and design. 
+I have a background in Applied Physics and 10+ years of experience across supply chain management, lighting consultancy, and design. 
 Now, I'm transitioning into **Data Analytics**, bringing a unique blend of **analytical precision, technical expertise,** and **problem-solving and presentation skills**.
 
 🔍 I specialize in:
